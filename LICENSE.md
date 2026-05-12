@@ -1,4 +1,4 @@
-# 
+# premium new token sniper bot | arbitrage-opportunities + pump-detection offers the most advanced new token sniper bot, with arbitrage-opportunities and pump-detection. Ideal for
 
 
 
